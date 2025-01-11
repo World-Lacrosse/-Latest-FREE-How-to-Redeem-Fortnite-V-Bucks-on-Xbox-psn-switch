@@ -3,9 +3,9 @@ Welcome to Fortnite latest guide to 09 January 2025 Redeem Epic Games V-Bucks, R
 
 Last Updated! 09 January 2025
 
-✅ CLICK HERE TO GET NOW FREE
+[✅ CLICK HERE TO GET NOW FREE](https://shorter.me/nVzTR)
 
-✅ CLICK HERE TO GET NOW FREE
+[✅ CLICK HERE TO GET NOW FREE](https://shorter.me/nVzTR)
 
 Fortnite V Bucks Codes January 2025
 PAX7N-79CGE-NMW6T-T9NZG – (January Code)
